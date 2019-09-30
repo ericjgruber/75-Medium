@@ -9,6 +9,7 @@ For this challenge, dubbed 75 Medium, the rules are as follows:
 4. Drink .75 gallons/96 ounces of water per day.
 5. Take a progress pic every day.
 6. No alcohol for the entire 75 days.
+7. Don't announce your plan before you get started, just get to work.
 
 **Note** *This is a fork of the [75 Hard Challenge](https://andyfrisella.com/blogs/mfceo-project-podcast/75hard-a-75-day-tactical-guide-to-winning-the-war-with-yourself-with-andy-frisella-mfceo291) mental toughness challenge by [Andy Frisella](https://andyfrisella.com/).*
 
