@@ -1,0 +1,15 @@
+# Comments
+I am a big fan of periodic challenges. I've done two periods of [Whole30](https://whole30.com/), which until I generally think is one of the most strict dietary programs around. In my younger years, I was a big fan of the [Body for Life](https://en.wikipedia.org/wiki/Body_for_Life) program, and have done several periods of working out using the [5 X 5](https://stronglifts.com/5x5/) method.
+
+When I stumbled across the 75 Hard challenge recently, I was intrigued. But the more I thought about it, the more I disagreed with it for a few fundamental reasons.
+
+## Disagreements
+1. If you can "follow any diet you want" but can't have any cheat days, then you really can't follow any diet you want. For example, Body for Life includes one cheat day per week. A [Cyclical Ketogenic Diet](https://www.ruled.me/cyclical-ketogenic-diet-indepth-look/) includes one or two days of high carb eating, which might include some "crap food" on the days you're cycling off low carb. Finally, following a meal plan every day leaves no room for a one-day fast.
+2. There's no evidence to support drinking 64 onces a day, one gallon a day, or even one cup a day of water. Humans get plenty of water in other beverages, but I agree it's good to drink more plain water than coffee, sodas (even diet), juice, milk, etc. Instead of forcing one gallon on everyone, I decided to one it down a little just to spare some sanity in trips to the bathroom.
+3. Exercising twice a day might be fine for some, but it's not going to work for me. I am fully self aware of my life and routine. I would never be able to achieve working out twice a day, and forcing one workout a day to be outside isn't practical. I don't want to be set up to fail from the beginning.
+4. As a self aware individual, I also know my body *needs* physical rest, at least once per week. I have injured myself in the past with working out too much and not giving myself time to heal. Since I want to have a challenge I think I could complete while still being worth persuing. Rest is an important part of growth, and as a socieity we're generally so busy that forcing oneself to rest can be a challenge in itself.
+5. I don't have any problem with a requirement to read every day, but it seems a little unnecessary. I don't see the need to say "read 10 pages of a book" when one could easily read that much content with blogs, consuming podcasts, audiobooks, and so on.
+
+Generally, I'm a fan of the idea of 75 Hard, but I also think you have to have a plan that sets you up to succeed from the beginning. I get it; it's a mental challenge. But for many, simply taking on any kind of challenge is challenge enough.
+
+So, agree or disagree, that's fine. But this challenge is for for me. If you find it valuable, please feel free to send me a message at [@ericjgruber](https://twitter.com/ericjgruber). Good luck with your journey!
