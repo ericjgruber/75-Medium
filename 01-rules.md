@@ -6,8 +6,8 @@ For this challenge, dubbed 75 Medium, the rules are as follows:
 1. Follow whatever diet you want, even if that diet includes one cheat day or cheat meal per week (or similar), for the entire 75 days of the challenge.
 2. Work out at least once per day, six days of the week.
 3. Rest from all exercise one day per week.
-4. Drink .75 gallons/96 ounces of water per day.
-5. Take a progress pic every day.
+4. Drink .5 gallons/64 ounces of water per day.
+5. Take a progress pic once per week so you can see your own progress.
 6. No alcohol for the entire 75 days.
 
 And as a suggestion, maybe don't announce your plan before you get started, just get to work.
